@@ -10,4 +10,7 @@
 من الأول متوسط الى السادس العلمي
 
 لغرص التواصل مع المالك
+رابط البوت: 
+https://t.me/DistinguishedStudents14_bot
+وللتواصل مع صاحب البوت على تطبيق التيليكرام
 @DistinguishedStudents10_bot
